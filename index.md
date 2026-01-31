@@ -354,4 +354,4 @@ it seems not that complicated. if human try to be as good as possible and try to
 people like to live successful, rich, famous, hero, champion, family man, actor, doctor, scientist, leader, engineer, entrepreneur, billionaire, president, king, saint, prophet. but who want to live god?  
 god is better than any other. god id the best. why one don't want to live god? not the omnipotent god, not the uncreated and everlasting god, not the creator, preserver, destroyer god, not a tyrant, oppressor, slave driver god.  
 not even a righteous and just god. righteousness and justice is good not the best. god is more! god is kind, wise, generous, forgiver and merciful. god is collection of all good and void from all bad. god sits and watch and don't interfere! god loves all, even the bad ones, either punish them or forgive them. how is it possible god create something bad, something that don't like it? someone must aim high, highest, to reach its highest and what is higher than god?  
-the world is full of creatures, where is the creator? where is the god? be the god!  
+The world is full of creatures. Where is Creator? Where is God? Be God!  
